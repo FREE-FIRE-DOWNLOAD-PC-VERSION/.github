@@ -17,7 +17,7 @@ The **PC version of FREE FIRE** offers a unique opportunity to enjoy one of the 
 
 🛡️ **Undetected by the System:**  
 - Unique technology bypasses emulator detection.  
-- Play on equal terms with mobile players without the risk of being banned.  
+- Play on equal terms with mobile players without the risk of being banned
 
 ⚡ **Optimized for PC:**  
 - High performance even on low-end computers.  
